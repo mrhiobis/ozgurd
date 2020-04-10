@@ -1,0 +1,2 @@
+# ozgurd
+ hakkımda 
